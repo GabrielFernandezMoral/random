@@ -1,0 +1,1 @@
+Este proyecto puede ser copiado, utilizado y distribuido de la manera que usted desee y sin ningún tipo de permiso o mención
